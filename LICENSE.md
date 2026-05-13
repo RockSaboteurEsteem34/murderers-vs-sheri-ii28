@@ -1,4 +1,4 @@
-#  
+#  smart murderers vs sheriffs 2 Script is the best murderers vs sheriffs 2 Script, featuring private server access and god mode. Safe and powerful for
 
 
 
